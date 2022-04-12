@@ -2,9 +2,4 @@
 
 
 
-
-
-
-
-
 [link to the video (click here........)]()
