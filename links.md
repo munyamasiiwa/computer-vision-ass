@@ -2,4 +2,4 @@
 
 
 
-[link to the video (click here........)](	https://github.com/munyamasiiwa/computer-vision-ass)
+[link to the video (click here........)](	https://www.youtube.com/watch?v=GSrEwLsII78)
